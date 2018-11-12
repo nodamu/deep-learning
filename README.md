@@ -1,1 +1,1 @@
-Personal projects for studies, need help for improvement though
+Personal projects for studies
